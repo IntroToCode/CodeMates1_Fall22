@@ -6,9 +6,7 @@
 
 ## Ingredients: Ground Meat, Bread Crumbs, Garlic, Parmasan Cheese, Tomato Sauce (Rao's), Spaghetti, Salt, and Pepper
 
-## Equipment needed:
-Pasta Pot
-Large Pot
+## Equipment needed: Large Pot, Large saucepan with lid, Sharp knife, Medium mixing bowl, Cutting board, Wooden spoon, Colander Can opener
 
 ## Steps for preparation:
 1) Cook Spaghetti with salted water
