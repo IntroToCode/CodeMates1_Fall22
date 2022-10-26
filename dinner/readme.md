@@ -1,6 +1,6 @@
 # Spaghetti and Meatballs
 
-## Servings: 6 servings 
+## Servings: 6 servings
 
 ## Time to prepare: 45 min
 

@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Scrambled Eggs
 
-## Servings: 
+## Servings: 6 servings
 
 ## Time to prepare: 
 
