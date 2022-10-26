@@ -2,7 +2,7 @@
 
 ## Servings: 6 servings
 
-## Time to prepare: 45 min
+## Time to prepare: 45~50min
 
 ## Ingredients: Ground Meat, Bread Crumbs, Minced Garlic, Parmasan Cheese, Tomato Sauce (Rao's), Spaghetti, Salt, and Pepper
 
