@@ -4,7 +4,7 @@
 
 ## Time to prepare: 45 min
 
-## Ingredients: Ground Meat, Bread Crumbs, Garlic, Parmasan Cheese, Tomato Sauce (Rao's), Spaghetti, Salt and Pepper
+## Ingredients: Ground Meat, Bread Crumbs, Garlic, Parmasan Cheese, Tomato Sauce (Rao's), Spaghetti, Salt, and Pepper
 
 ## Equipment needed:
 Pasta Pot
