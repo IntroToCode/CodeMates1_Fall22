@@ -5,6 +5,9 @@
 ## Time to prepare: 
 
 ## Ingredients:
+6 eggs
+Salt
+Pepper
 
 
 ## Equipment needed:
