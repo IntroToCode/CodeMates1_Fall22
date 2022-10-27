@@ -1,16 +1,19 @@
 # Scrambled Eggs
 
-## Servings: 6 servings
+<img src="https://cdn.loveandlemons.com/wp-content/uploads/2021/05/scrambled-eggs-500x375.jpg">
 
-## Time to prepare: 
+## <strong>Servings:</strong> 6 servings
 
 ## Ingredients:
 6 eggs
 Salt
 Pepper
+## Time to prepare: 10~15 minutes
+
+## Ingredients: eggs, milk, butter, salt, and pepper
 
 
-## Equipment needed:
+## Equipment needed: mixing bowl, whisk (fork will do), non-stick pan, spatula 
 
 
 ## Steps for preparation:
