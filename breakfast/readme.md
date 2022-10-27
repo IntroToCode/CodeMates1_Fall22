@@ -4,6 +4,10 @@
 
 ## <strong>Servings:</strong> 6 servings
 
+## Ingredients:
+6 eggs
+Salt
+Pepper
 ## Time to prepare: 10~15 minutes
 
 ## Ingredients: eggs, milk, butter, salt, and pepper
