@@ -1,7 +1,7 @@
 
 # Spaghetti and Meatballs
 
-<img src="https://i.etsystatic.com/11465033/r/il/7537f2/3560856269/il_1588xN.3560856269_95sh.jpg">
+<img src="https://i.etsystatic.com/11465033/r/il/7537f2/3560856269/il_1588xN.3560856269_95sh.jpg" height="400" >
 
 ## Servings: 6 servings
 
